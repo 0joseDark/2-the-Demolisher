@@ -7,7 +7,7 @@
 - [1.003](https://github.com/0joseDark/2-the-Demolisher/blob/main/o-Demolidor.md)
 - [1.004](https://github.com/0joseDark/the-Demolisher/blob/main/noticias-news.md)
 - [1.005](https://github.com/0joseDark/2-the-Demolisher/blob/main/O-Demolidor-%20Not%C3%ADcias.md)
-- [Acesse o Google](https://www.google.com)
+- [1.006](https://github.com/0joseDark/2-the-Demolisher/blob/main/Minha-Jornada-Humana.md)
 - [Acesse o Google](https://www.google.com)
 - [Acesse o Google](https://www.google.com)
 
