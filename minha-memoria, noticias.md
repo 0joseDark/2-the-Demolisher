@@ -25,7 +25,7 @@
 
 - Minha morte se aproxima, e minha voz clama por justiça. Nada permanecerá intocado—tudo será transformado. O Barreiro cairá no esquecimento.
 
-- Exijo 100 bilhões de euros da autarquia do Barreiro pelos danos que sofri. Caso contrário, tudo será reduzido a pó.
+- assim, eu pedir 100 bilhões de euros da autarquia do Barreiro pelos danos que sofri. Caso contrário, tudo será reduzido a pó.
 
 - Minha existência pertence a Deus. Meu corpo pode se desintegrar, mas minha essência se libertará dos limites humanos.
 
