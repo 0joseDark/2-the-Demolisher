@@ -5,7 +5,7 @@
 - [1.002](https://github.com/0joseDark/2-the-Demolisher/blob/main/the-Demolisher.md)
 - [1.003](https://github.com/0joseDark/2-the-Demolisher/blob/main/my-memory-and-news.md)
 - [1.004](https://github.com/0joseDark/2-the-Demolisher/blob/main/My-Human-Journey.md)
-- [Acesse o Google](https://www.google.com)
+- [1.007](https://github.com/0joseDark/2-the-Demolisher/blob/main/the-Demolisher-news.md)
 - [Acesse o Google](https://www.google.com)
 - [Acesse o Google](https://www.google.com)
 - [Acesse o Google](https://www.google.com)
