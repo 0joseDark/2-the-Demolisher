@@ -1,1 +1,3 @@
-te amo, Deus meu
+- te amo, Deus meu.
+- detesto mentiras.
+
