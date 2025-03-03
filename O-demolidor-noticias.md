@@ -1,0 +1,5 @@
+- um grande abraço a meu irmão papa Francisco.
+- a guerra continua, agora corpo a corpo.
+- sou finho dum polícia,mas não sou policia.
+- como disse antes sou micionario profeta.
+- não tenh medo da morte porque sou de Deus.
